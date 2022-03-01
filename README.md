@@ -1,1 +1,1 @@
-# Grits Elena 953504, variant 4
+# Grits Elena 953504
